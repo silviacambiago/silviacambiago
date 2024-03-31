@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @silviacambiago
-- 👀 I’m interested in basically anything related to music, books, tattoos, travel, science and art
-- 🌱 I’m currently learning CS in UniMiB
+- 👀 Interested in basically anything related to music, books, travel, science and art
 -  Apple fan
 - 📊 Data Scientist to be
