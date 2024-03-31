@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @silviacambiago
+- 👋 I’m @silviacambiago
 - 👀 Interested in basically anything related to music, books, travel, science and art
 -  Apple fan
 - 📊 Data Scientist to be
