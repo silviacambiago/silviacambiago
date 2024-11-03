@@ -3,7 +3,7 @@
 
 [![](https://img.shields.io/badge/-@silviacambiagoo-%23001116?style=flat-square&logo=instagram&logoColor=ffffff)](https://www.instagram.com/silviacambiagoo/)
 [![](https://img.shields.io/badge/-@silviacambiago-%23001116?style=flat-square&logo=github)](https://github.com/silviacambiago)
-[![](https://img.shields.io/badge/-@silviacambiago-%23001116?style=flat-square&logo=linkedin)](https://www.linkedin.com/in/silvia-cambiago/)
+[![](https://img.shields.io/badge/-@silviacambiago-%23001116?style=flat-square&logo=linkedin)](https://www.linkedin.com/in/silviacambiago/)
 
 🎓 𝘽.𝙎𝙘. 𝙞𝙣 𝘾𝙤𝙢𝙥𝙪𝙩𝙚𝙧 𝙎𝙘𝙞𝙚𝙣𝙘𝙚 𝙖𝙩 𝙐𝙣𝙞𝙫𝙚𝙧𝙨𝙞𝙩𝙮 𝙤𝙛 𝙈𝙞𝙡𝙖𝙣 - 𝘽𝙞𝙘𝙤𝙘𝙘𝙖
 
